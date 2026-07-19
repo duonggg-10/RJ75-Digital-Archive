@@ -15,7 +15,7 @@ Xuân Lộc (cách Sài Gòn khoảng 80km về phía Đông) không đơn thu�
 ## 3. MÁU VÀ LỬA TRÊN NGÃ BA DẦU GIÂY
 Cuộc chiến không phải là một chiến thắng dễ dàng. Nó là một cối xay thịt đúng nghĩa. Bầu trời Xuân Lộc chưa bao giờ im tiếng gầm rú của máy bay dội bom.
 
-> *"Trời đất như sụp đổ. Những luồng sóng xung kích từ bom nhiệt áp CBU-55 dội xuống rút cạn dưỡng khí, thiêu rụi cả một vùng ngã ba Dầu Giây. Đất đá khét lẹt, tai ù đặc... Nhưng chúng tôi biết, nếu không bước qua cánh cửa này, đồng đội phía sau sẽ không thể tiến lên..."*
+> *"Trong tình thế tuyệt vọng, Bộ Tổng tham mưu quân đội Sài Gòn được Mỹ cho phép, đã sử dụng máy bay C-130 ném 2 quả bom CBU-55 xuống khu vực tập kết của quân ta lúc 14 giờ ngày 12-4-1975. Đây là loại vũ khí có sức huỷ diệt lớn, lần đầu tiên được sử dụng ở miền Nam, đốt cháy toàn bộ không khí trong vùng, làm hàng trăm người chết và bị thương."*
 > — *(Trích ghi chép chiến trường)*
 
 Hàng trăm chiến sĩ của ta đã ngã xuống khi cửa ngõ Sài Gòn chỉ còn cách vài chục cây số. Sự phản kháng của Sư đoàn 18 là cực kỳ cuồng loạn và đẫm máu.
