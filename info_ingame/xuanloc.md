@@ -26,7 +26,6 @@ Hàng trăm chiến sĩ của ta đã ngã xuống khi cửa ngõ Sài Gòn ch�
 
 ## 5. CÁNH CỬA THÉP VỠ NÁT
 Bị khóa chặt mọi đường lui và cắt đứt viện binh, tuyến phòng thủ của địch rệu rã. Sự hoảng loạn bao trùm.
-- **Đêm 21/04/1975:** Bức tường vỡ lở. Lực lượng còn lại của Sư đoàn 18 tháo chạy thục mạng khỏi Xuân Lộc trong màn đêm.
-- **Ngày 22/04/1975:** Xuân Lộc hoàn toàn giải phóng! 
+- **Đêm 21/04/1975:** Bức tường vỡ lở. Lực lượng còn lại của Sư đoàn 18 tháo chạy thục mạng khỏi Xuân Lộc trong màn đêm. Xuân Lộc hoàn toàn giải phóng!
 
 Chướng ngại vật cuối cùng đã bị nghiền nát. Đường vào Sài Gòn đã thênh thang. Giờ khắc quyết định của lịch sử chính thức bắt đầu.
