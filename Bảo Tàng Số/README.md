@@ -5,3 +5,5 @@
 *Những mũi tiến công trên sa bàn đã khép lại, và đây là lúc chúng mình muốn đưa bạn bước vào không gian của những trang sử có thật — nơi mỗi hiện vật, mỗi bức ảnh đều mang trong mình một số phận con người.*
 
 ## Sơ đồ các gian phòng
+
+[Trận Xuận Lộc, 1975](B%E1%BA%A3o%20T%C3%A0ng%20S%E1%BB%91/Tr%E1%BA%ADn%20Xu%C3%A2n%20L%E1%BB%99c "Tìm hiểu về Trận đánh tại Xuân Lộc năm 1975")
