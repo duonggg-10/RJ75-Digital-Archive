@@ -8,6 +8,7 @@
 - Lập trình gameplay: Phạm Thái Dương, Claude (Anthropic, PBC.), Gemini (Google, Inc.)
 - Thiết kế hình ảnh, âm thanh: Phạm Thái Dương
 - Lồng tiếng: Trần Thị An Bình, Phạm Thái Dương, ElevenLabs AI (ElevenLabs Inc)
+- Soạn báo cáo khoa học, thuyết trình: Trần Thị An Bình, Phạm Thái Dương
 - Người hướng dẫn, cố vấn: Cô Lưu Thị Thu Hà
 
 ## Phần mềm được sử dụng:
