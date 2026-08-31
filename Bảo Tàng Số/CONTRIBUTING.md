@@ -26,16 +26,14 @@ Song: This Too Shall Pass
 Composer: Scott Buckley  
 Website: https://youtube.com/user/musicbyscottb  
 License: Free To Use YouTube license youtube-free  
-Music powered by Breaking  
-Copyright: https://breakingcopyright.com  
+Music powered by BreakingCopyright: https://breakingcopyright.com  
 
 
 Song: Warm Memories  
 Composer: Keys Of Moon  
 Website: https://www.youtube.com/c/keysofmoonmusic  
 License: Creative Commons (BY 3.0) https://creativecommons.org/licenses/by/3.0/  
-Music powered by Breaking  
-Copyright: https://breakingcopyright.com  
+Music powered by BreakingCopyright: https://breakingcopyright.com  
 
 ## Tài liệu được sử dụng để tham khảo:
 
