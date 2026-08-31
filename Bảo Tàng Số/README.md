@@ -1,3 +1,5 @@
 # PHẦN 4: BẢO TÀNG SỐ
 
-*Lời đầu tiên, xin chân thành cảm ơn bạn đã dành thời gian để trải nghiệm trò chơi "Phía Sau Lá Cờ" của chúng tôi. Nhằm mục đích cung cấp thêm cho bạn những thông tin lịch sử hữu ích, xin mời bạn ghé thăm **Bảo tàng Số** thuộc chuỗi dự án này.*
+*Cảm ơn bạn đã đồng hành cùng Quân đoàn 2 và đi trọn vẹn hành trình của **Phía Sau Lá Cờ**.*
+
+*Những mũi tiến công trên sa bàn đã khép lại, và đây là lúc chúng mình muốn đưa bạn bước vào không gian của những trang sử có thật — nơi mỗi hiện vật, mỗi bức ảnh đều mang trong mình một số phận con người.*
