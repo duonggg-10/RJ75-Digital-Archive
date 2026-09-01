@@ -49,6 +49,6 @@ Music powered by BreakingCopyright: https://breakingcopyright.com
 - Bài hát: Viết tiếp câu chuyện hoà bình - ST: Nguyễn Văn Chung
 - Bài hát: Nỗi đau giữa hoà bình - ST: Nguyễn Văn Chung
 - Bài hát: Mắt bão - ST & Trình bày: Long Nón Lá, Tọi, Phương Nghiêm  
-- Mãi mãi tuổi 20  
-- Bức thư gửi thế hệ mai sau  
+- Mãi mãi tuổi 20 - Liệt sĩ Nguyễn Văn Thạc  
+- Bức thư gửi thế hệ mai sau - Ba chiến sĩ Trung đội Ký Con   
 - (Và những sự kiện, những câu chuyện lịch sử có thật)
