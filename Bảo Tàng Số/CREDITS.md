@@ -43,3 +43,12 @@ Music powered by BreakingCopyright: https://breakingcopyright.com
 ## Nguồn bổ sung:
 
 - Báo điện tử Nhân Dân, Báo điện tử Dân Trí, Báo điện tử VTV
+
+# Lấy cảm hứng từ
+
+- Bài hát: Viết tiếp câu chuyện hoà bình - ST: Nguyễn Văn Chung
+- Bài hát: Nỗi đau giữa hoà bình - ST: Nguyễn Văn Chung
+- Bài hát: Mắt bão - ST & Trình bày: Long Nón Lá, Tọi, Phương Nghiêm  
+- Mãi mãi tuổi 20  
+- Bức thư gửi thế hệ mai sau  
+- (Và những sự kiện, những câu chuyện lịch sử có thật)
