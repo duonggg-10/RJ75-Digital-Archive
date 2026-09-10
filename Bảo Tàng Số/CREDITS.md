@@ -38,7 +38,8 @@ Music powered by BreakingCopyright: https://breakingcopyright.com
 ## Tài liệu được sử dụng để tham khảo:
 
 - Từ sông Bến Hải đến Dinh Độc Lập - Thiếu tướng Hoàng Đan (Nhà xuất bản Thông Tấn, 2025)
-- Lịch sử kháng chiến chống Mỹ, cứu nước - Tập 8 - Bộ Quốc phòng (Nhà xuất bản chính trị quốc gia, 2013)
+- Lịch sử kháng chiến chống Mỹ, cứu nước - Tập 8 - Bộ Quốc phòng (Nhà xuất bản Chính trị quốc gia Sự thật , 2013)
+- Những lá thư thời chiến Việt Nam (Tuyển tập) - Đặng Vương Hưng (Nhà xuất bản Chính trị quốc gia Sự thật, 2025)
 
 ## Nguồn bổ sung:
 
