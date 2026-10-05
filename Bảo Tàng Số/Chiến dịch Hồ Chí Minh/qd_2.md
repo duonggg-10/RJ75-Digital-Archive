@@ -15,4 +15,4 @@
 
 Thành lập ngày 17/5/1974. Quân đoàn 2 được giao nhiệm vụ tiến công từ hướng Đông Nam Sài Gòn, nhằm: tạo thế bao vây chiến lược từ Đông Bắc; đánh chiếm Bà Rịa, các căn cứ Nước Trong, Long Bình, chặn đường rút chạy của địch trên sông; thọc sâu vào trung tâm Sài Gòn.
 
-Một trong những nhiệm vụ nổi bật của Quân đoàn 2 là tham gia đánh chiếm Dinh Độc Lập. Xe tăng 390 và xe tăng 843 của Quân đoàn 2, phối hợp với Quân đoàn 1, đã húc đổ cổng Dinh Độc Lập vào trưa ngày 30/4/1975, đánh dấu thời khắc lịch sử của chiến dịch.
+Một trong những nhiệm vụ nổi bật của Quân đoàn 2 là tham gia đánh chiếm Dinh Độc Lập. Xe tăng 390 và xe tăng 843 của Quân đoàn 2, đã húc đổ cổng Dinh Độc Lập vào trưa ngày 30/4/1975, đánh dấu thời khắc lịch sử của chiến dịch.
