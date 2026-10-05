@@ -10,6 +10,6 @@
 
 ---
 
-* **ĐOÀN 232**
+**ĐOÀN 232**
 
 Được tái tổ chức và tăng cường thành một lực lượng chủ lực cấp chiến dịch vào tháng 1/1975. Đoàn 232 được giao nhiệm vụ tiến công từ hướng Tây và Tây Nam Sài Gòn, nhằm: tạo thế bao vây chiến lược từ Tây và Tây Nam; đánh chiếm các cứ điểm then chốt gồm Tân An (Long An), Bến Lức, Nhà Bè, Biệt khu Thủ đô, Tổng Nha Cảnh sát; cắt đường số 4, đánh chiếm Biệt khu Thủ đô và Tổng Nha Cảnh sát ngụy.
