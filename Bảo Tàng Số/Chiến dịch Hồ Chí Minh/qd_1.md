@@ -4,10 +4,10 @@
 
 **Lực lượng tham chiến:**
 
-* 31.227 người
-* 36 pháo các cỡ
-* 44 xe tăng
-* 29 thiết giáp
+- 31.227 người
+- 36 pháo các cỡ
+- 44 xe tăng
+- 29 thiết giáp
 
 ---
 
