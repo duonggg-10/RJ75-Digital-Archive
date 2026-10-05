@@ -14,5 +14,3 @@
 *QUÂN ĐOÀN 1 (BINH ĐOÀN QUYẾT THẮNG)*
 
 Thành lập ngày 24/10/1973. Quân đoàn 1 được giao nhiệm vụ tiến công từ hướng Bắc Sài Gòn, nhằm đạt mục tiêu: tạo thế bao vây chiến lược từ hướng Bắc; đánh chiếm các cứ điểm then chốt gồm Căn cứ Lai Khê, các vị trí phòng thủ Bến Cát và Hóc Môn, cầu Tham Rễ; đánh chiếm Bộ Tổng Tham mưu ngụy và căn cứ Bộ Tư lệnh các binh chủng của địch ở Gò Vấp; thọc sâu vào trung tâm Sài Gòn.
-
-Một trong những nhiệm vụ nổi bật của Quân đoàn 1 là tham gia đánh chiếm Dinh Độc Lập cùng Quân đoàn 2.
