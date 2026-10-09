@@ -6,6 +6,6 @@
 
 ## Sơ đồ các gian phòng
 
-[Trận Xuận Lộc, 1975](Tr%E1%BA%ADn%20Xu%C3%A2n%20L%E1%BB%99c "Tìm hiểu về Trận đánh tại Xuân Lộc năm 1975")
+[Trận Xuận Lộc, 1975](./Trận%20Xuân%20Lộc "Tìm hiểu về Trận đánh tại Xuân Lộc năm 1975")
 
 [Chiến dịch Hồ Chí Minh](Chiến%20dịch%20Hồ%20Chí%20Minh "Tìm hiểu về chiến dịch Hồ Chí Minh năm 1975")
