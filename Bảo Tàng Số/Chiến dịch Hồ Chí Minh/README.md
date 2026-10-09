@@ -49,7 +49,7 @@ ___
 
 ___
 
-![Khoảnh khắc xe tăng 390 húc đổ cổng chính Dinh Độc Lập](./assets/pics/xe-390-huccong.webp)
+<img src = "/assets/pics/xe-390-huccong.webp" alt = "Khoảnh khắc xe tăng 390 húc đổ cổng chính Dinh Độc Lập" width = 800, height = 500>
 
 > Đúng 11 giờ 30 phút, quân ta tiến vào Sài Gòn, đánh chiếm Dinh Độc lập.
 > Bộ Tổng tham mưu Nguỵ - Dương Văn Minh đầu hàng vô điều kiện
@@ -62,4 +62,3 @@ ___
 
 Tại Đài phát thanh Sài Gòn, lời tuyên bố đầu hàng của Dương Văn Minh - Tổng thống cuối cùng của Chính quyền Sài Gòn đã được phát đi.
 Khoảnh khắc ấy, từ hầm chỉ huy chiến dịch, đến đồng bào toàn quốc như vỡ oà trong niềm hạnh phúc khôn tả. Nước mắt xen lẫn những nụ cười, tiếng reo hò hòa cùng tiếng thở phào của hàng triệu con người vừa bước qua một cuộc chiến dài đằng đẵng. Sau hơn 20 năm chia cắt và biết bao hy sinh, non sông từ đây chính thức thu về một mối, đất nước trọn niềm vui.
-
