@@ -1,4 +1,4 @@
-<img width="800" height="542" alt="xe-390-huccong" src="https://github.com/user-attachments/assets/dfe55ff0-03e9-4eac-b960-a7a62a373660" /># Chiến dịch Hồ Chí Minh
+# Chiến dịch Hồ Chí Minh
 *Diễn ra: 26/04/1975- 30/04/1975*
 
 ---
@@ -49,7 +49,7 @@ ___
 
 ___
 
-![Khoảnh khắc xe tăng 390 húc đổ cổng chính Dinh Độc Lập]()
+![Khoảnh khắc xe tăng 390 húc đổ cổng chính Dinh Độc Lập](<img width="800" height="542" alt="xe-390-huccong" src="https://github.com/user-attachments/assets/dfe55ff0-03e9-4eac-b960-a7a62a373660" />)
 
 > Đúng 11 giờ 30 phút, quân ta tiến vào Sài Gòn, đánh chiếm Dinh Độc lập.
 > Bộ Tổng tham mưu Nguỵ - Dương Văn Minh đầu hàng vô điều kiện
