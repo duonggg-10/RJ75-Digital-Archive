@@ -1,8 +1,8 @@
 Trong suốt 20 năm kháng chiến, quân và dân ta đã không tiếc máu xương, sẵn sàng nằm xuống vì độc lập, vì tự do, và vì sự thống nhất của dân tộc Việt Nam.
 Như trong bản Tuyên ngôn độc lập lịch sử năm 1945, Bác Hồ đã khẳng định:
 
-> Nước Việt Nam có quyền được hưởng tự do và độc lập, và sự thật đã thành một nước tự do độc lập
->
+> Nước Việt Nam có quyền được hưởng tự do và độc lập, và sự thật đã thành một nước tự do độc lập.
+
 > Toàn thể dân tộc Việt Nam quyết đem tất cả tinh thần và lực lượng, tính mạng và của cải để giữ vững quyền tự do độc lập ấy
 
 1954 - 1975
