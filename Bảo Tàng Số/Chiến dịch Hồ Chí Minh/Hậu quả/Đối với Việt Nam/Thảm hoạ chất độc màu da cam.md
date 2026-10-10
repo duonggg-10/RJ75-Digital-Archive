@@ -2,7 +2,7 @@ Ngày 10/08/1961, Quân đội Mỹ bắt đầu cho triển khai việc sử d�
 
 <img src = "https://vnn-imgs-f.vgcloud.vn/2018/08/10/10/ngay-nay-nam-xua-my-rai-chat-doc-da-cam-o-viet-nam-1.jpg" width = 800 height = 450>
 
-Kết thúc gần 3 tháng triển khai trên phạm vi hơn <mark>3,06 triệu héc-ta đất</mark> (chiếm khoảng 25% diện tích miền Nam Việt Nam), <mark>khoảng 80 triệu lít chất độc hóa học</mark> đã được phun rải, trong đó <mark>61% là chất độc da cam chứa khoảng 366 kg dioxin</mark>.
+Kết thúc 10 năm triển khai (1961 - 1971) trên phạm vi hơn <mark>3,06 triệu héc-ta đất</mark> (chiếm khoảng 25% diện tích miền Nam Việt Nam), <mark>khoảng 80 triệu lít chất độc hóa học</mark> đã được phun rải, trong đó <mark>61% là chất độc da cam chứa khoảng 366 kg dioxin</mark>.
 
 # Hậu quả
 
