@@ -23,4 +23,15 @@ Bước ra khỏi cuộc chiến, vùng hậu phương miền Bắc đã gánh c
 - <mark>Nền kinh tế quốc gia</mark> kiệt quệ, nguồn tích lũy bằng không, đời sống nhân dân rơi vào cảnh thiếu thốn cùng cực dưới chế độ tem phiếu ngặt nghèo và phụ thuộc gần như tuyệt đối vào viện trợ của khối XHCN.
 
 
-Ở **miền Nam**
+Ở **miền Nam**, bom đạn, hóa chất độc hại và các chiến dịch quân sự khốc liệt đã làm biến dạng hoàn toàn bộ mặt tự nhiên, san phẳng nông thôn và làm sụp đổ cấu trúc kinh tế:
+
+- <mark>Hàng nghìn làng mạc, thôn ấp</mark> bị san bằng và triệt hạ trong các chiến dịch "tìm và diệt", dồn dân lập "ấp chiến lược", biến nhiều vùng nông thôn trù phú thành "vùng tự do oanh kích".
+- <mark>Nhiều đô thị, thị xã chiến lược</mark> bị phá hủy gần như bình địa; tiêu biểu như thị xã Quảng Trị (hứng chịu lượng bom đạn tương đương 7 quả bom nguyên tử năm 1972), An Lộc (Bình Long), Kon Tum.
+- <mark>Gần 5 triệu héc-ta rừng và đất canh tác</mark> bị hủy diệt bởi hơn 80 triệu lít chất độc hóa học (chủ yếu là chất độc da cam/dioxin), làm biến đổi hệ sinh thái tự nhiên và biến nhiều vựa lúa thành vùng đất chết, hoang hóa.
+- <mark>Hàng chục triệu hố bom</mark> cùng hàng trăm ngàn tấn bom mìn, vật nổ còn sót lại cày xới đất đai, đe dọa sinh mạng người dân và gây tắc nghẽn công cuộc khai hoang, phục hóa suốt nhiều thập kỷ sau chiến tranh.
+- <mark>Hạ tầng thủy lợi và giao thông nông thôn</mark> (hệ thống đê kè, kênh rạch vùng Đồng bằng sông Cửu Long và ven biển miền Trung) bị tàn phá nặng nề, làm đảo lộn tập quán canh tác nông nghiệp truyền thống.
+- <mark>Nền kinh tế đô thị “ký sinh”</mark> lâm vào khủng hoảng và sụp đổ hoàn toàn; do trước đó bản chất của nền kinh tế này vận hành dựa gần như tuyệt đối vào nguồn viện trợ quân sự, hàng hóa tiêu dùng và dòng dollar (USD) từ bộ máy chiến tranh Mỹ.
+- <mark>Cơ cấu công nghiệp méo mó</mark>, què quặt, thiếu hụt công nghiệp nặng và nền tảng tự chủ, chủ yếu xoay quanh dịch vụ giải trí, gia công nhẹ và phục vụ quân sự tiêu dùng.
+- <mark>Làn sóng người tị nạn chiến tranh</mark> lên tới hàng triệu nông dân bị mất ruộng đất, nhà cửa, buộc phải dạt về các đô thị lớn (đặc biệt là Sài Gòn, Đà Nẵng), tạo nên những khu ổ chuột khổng lồ cùng cuộc khủng hoảng thất nghiệp, nghèo đói và tệ nạn xã hội trầm trọng.
+- <mark>Tình trạng lạm phát phi mã</mark> và khan hiếm hàng hóa cơ bản bùng nổ đỉnh điểm trong giai đoạn 1973 – 1975 sau khi Mỹ rút quân và cắt giảm viện trợ tài chính.
+- <mark>Gánh nặng hậu chiến và cấm vận</mark>: Toàn bộ đất nước bước vào kỷ nguyên thống nhất với muôn vàn khó khăn, đói nghèo, vừa phải gánh chịu hậu quả nặng nề của chiến tranh, vừa phải tiếp tục đối mặt với chính sách bao vây, cấm vận kinh tế ngặt nghèo kéo dài gần 20 năm từ phía Mỹ (đến tận năm 1994 mới được dỡ bỏ).
