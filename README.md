@@ -1,6 +1,5 @@
 # Sơ đồ tham quan
 
-1. [Khu trưng bày: Trận Xuân Lộc](./Trận%20Xuân%20Lộc)
-2. [Khu trưng bày: Chiến dịch Hồ Chí Minh](./Chiến%20dịch%20Hồ%20Chí%20Minh)
-3. [Phòng tư liệu hiện vật](./assets)
-4. [Phòng tư liệu game "Phía Sau Màu Cờ"](./info_ingame)
+1. [Bảo tàng số](./Bảo%20tàng%20số)
+2. [Phòng tư liệu hiện vật](./assets)
+3. [Phòng tư liệu game "Phía Sau Màu Cờ"](./info_ingame)
