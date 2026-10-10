@@ -65,4 +65,4 @@ Khoảnh khắc ấy, từ hầm chỉ huy chiến dịch, đến đồng bào t
 
 ## Phụ lục
 
-[Hậu quả của cuộc chiến](/Hậu%20quả)
+[Hậu quả của cuộc chiến](../Hậu%20quả)
