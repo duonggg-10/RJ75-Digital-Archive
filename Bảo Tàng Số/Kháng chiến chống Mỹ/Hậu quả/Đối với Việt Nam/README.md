@@ -20,5 +20,6 @@ Hãy cùng nhìn lại những vết thương chưa lành của chiến tranh:
   - [Tổn thất nhân mạng](Mất%20mát%20về%20con%20người.md)
   - [Thảm họa da cam (Dioxin)](Thảm%20hoạ%20chất%20độc%20màu%20da%20cam.md)
   - [Bom mìn và vật liệu nổ còn sót lại](Bom%20mìn%20và%20vật%20liệu%20chưa%20nổ.md)
+  - [Kinh tế và hạ tầng](Kinh%20tế%20và%20hạ%20tầng%20kiệt%20quệ.md)
 
 </details>
