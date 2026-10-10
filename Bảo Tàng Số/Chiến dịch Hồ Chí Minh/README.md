@@ -62,3 +62,7 @@ ___
 
 Tại Đài phát thanh Sài Gòn, lời tuyên bố đầu hàng của Dương Văn Minh - Tổng thống cuối cùng của Chính quyền Sài Gòn đã được phát đi.
 Khoảnh khắc ấy, từ hầm chỉ huy chiến dịch, đến đồng bào toàn quốc như vỡ oà trong niềm hạnh phúc khôn tả. Nước mắt xen lẫn những nụ cười, tiếng reo hò hòa cùng tiếng thở phào của hàng triệu con người vừa bước qua một cuộc chiến dài đằng đẵng. Sau hơn 20 năm chia cắt và biết bao hy sinh, non sông từ đây chính thức thu về một mối, đất nước trọn niềm vui.
+
+## Phụ lục
+
+[Hậu quả của cuộc chiến]("/Hậu quả")
