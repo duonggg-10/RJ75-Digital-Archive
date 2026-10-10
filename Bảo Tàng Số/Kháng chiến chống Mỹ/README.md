@@ -29,4 +29,4 @@ Không còn lựa chọn nào khác ngoài việc cầm súng, một quốc gia 
 - [Chiến dịch Hồ Chí Minh](Chiến%20dịch%20Hồ%20Chí%20Minh)
 
 ### Tổng kết
-[Hậu quả](Hậu%20quả)
+- [Hậu quả](Hậu%20quả)
