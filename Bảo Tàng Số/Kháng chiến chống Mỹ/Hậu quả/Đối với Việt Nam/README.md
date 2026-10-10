@@ -19,3 +19,5 @@ Và liệu sau khi hoà bình lập lại, đấy có phải là khoảnh khắc
 Nếu bạn cũng có thắc mắc trên, vậy hãy cùng nhau khám phá nhé!
 
 # Hậu quả của cuộc Kháng chiến chống Mỹ, cứu nước đã để lại cho đất nước, con người Việt Nam
+
+[Chất độc màu da cam (Dioxin)](Thảm%20hoạ%20chất%20độc%20màu%20da%20cam.md)
