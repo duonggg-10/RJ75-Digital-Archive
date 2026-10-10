@@ -6,7 +6,9 @@ Như trong bản Tuyên ngôn độc lập lịch sử năm 1945, Bác Hồ đã
 > Toàn thể dân tộc Việt Nam quyết đem tất cả tinh thần và lực lượng, tính mạng và của cải để giữ vững quyền tự do độc lập ấy
 
 1954 - 1975
-20 năm
+
+Tức là 20 năm
+
 Đó không phải một quãng thời gian quá dài hay quá ngắn trong biên niên sử dân tộc
 Song, 20 năm ấy đã chứng kiến một giai đoạn vô cùng anh hùng của dân tộc: 20 năm kháng chiến chống Mỹ, cứu nước
 Và cuối cùng, như chúng ta cũng đã biết
