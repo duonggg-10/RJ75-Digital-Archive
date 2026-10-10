@@ -19,14 +19,14 @@ Không còn lựa chọn nào khác ngoài việc cầm súng, một quốc gia 
 
 ## Mục lục
 
-### 1954 - 1960
+### Giai đoạn 1954 - 1960
 
-### 1961 - 1965
+### Giai đoạn 1961 - 1965
 
-### 1965 - 1968
+### Giai đoạn 1965 - 1968
 
-### 1969 - 1975
-[Chiến dịch Hồ Chí Minh](Chiến%20dịch%20Hồ%20Chí%20Minh)
+### Giai đoạn 1969 - 1975
+- [Chiến dịch Hồ Chí Minh](Chiến%20dịch%20Hồ%20Chí%20Minh)
 
 ### Tổng kết
 [Hậu quả](Hậu%20quả)
