@@ -17,3 +17,6 @@ Không còn lựa chọn nào khác ngoài việc cầm súng, một quốc gia 
 Ý chí gang thép ấy chính là ngọn cờ dẫn dắt toàn quân, toàn dân ta bước vào một thiên anh hùng ca kéo dài suốt 21 năm — nơi một dân tộc nhỏ bé kiên cường đánh bại những chiến lược chiến tranh tàn khốc nhất của thời đại.
 
 ## Mục lục
+
+[Chiến dịch Hồ Chí Minh](Chiến%20dịch%20Hồ%20Chí%20Minh)
+[Hậu quả](Hậu%20quả)
